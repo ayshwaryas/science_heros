@@ -11,5 +11,7 @@ I found her story truly inspiring. Her story also has a nice anecdote of mentors
 For further reading:
 
 here's the HuffPost blogpost: http://www.huffingtonpost.co.uk/dr-maryclaire-king/brca-marriage-testing_b_17908074.html
+
 the original audio recording: https://themoth.org/stories/who-can-you-trust
-and the landmark paper on BRCA1 discovery (PMID:2270482): http://njc.rockefeller.edu/pdf4/Class8-King1990.pdf
+
+the landmark paper on BRCA1 discovery (PMID:2270482): http://njc.rockefeller.edu/pdf4/Class8-King1990.pdf
